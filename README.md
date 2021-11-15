@@ -1,0 +1,2 @@
+# atrodipsihologu.lv
+Praktiskais darbs
